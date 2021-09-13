@@ -1,3 +1,3 @@
 # farhanrxz.github.io.
 
-Thanks yang udah meluangkan waktunya untuk berkunjung kesini, Salam kenal!
+Thanks untuk yang sudah meluangkan waktunya untuk berkunjung kesini, Salam kenal!
